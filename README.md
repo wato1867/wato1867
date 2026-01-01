@@ -26,12 +26,12 @@
   
 <br>  
 
-$\color{#A6D113FF}{\textsf{skurfic, he/him! check prns cc}}$ <br>
-$\color{#A6D113FF}{\textsf{daybreak duo n' kww trio lover!!}}$<br>
-$\color{#A6D113FF}{\textsf{spamtenna enjoyer.. kill the divorcees}}$<br>
-$\color{#A6D113FF}{\textsf{(find me in the docks or utdr area}}$<br>
-$\color{#A6D113FF}{\textsf{likely at docks with friends tho :P}}$<br>
-$\color{#A6D113FF}{\textsf{interact... now... i love socialising}}$<br>
+$\color{#26C519FF}{\textsf{skurfic,}}$ $\color{#A6D113FF}{\textsf{he/him! check prns cc}}$ <br>
+$\color{#26C519FF}{\textsf{daybreak}}$ $\color{#A6D113FF}{\textsf{duo n'}}$ $\color{#26C519FF}{\textsf{kww}}$ $\color{#A6D113FF}{\textsf{trio lover!!}}$<br>
+$\color{#26C519FF}{\textsf{spamtenna}}$ $\color{#A6D113FF}{\textsf{enjoyer.. kill the divorcees}}$<br>
+$\color{#A6D113FF}{\textsf{find me in the}}$ $\color{#26C519FF}{\textsf{docks}}$ $\color{#A6D113FF}{\textsf{or}}$ $\color{#26C519FF}{\textsf{utdr}}$ $\color{#A6D113FF}{\textsf{area}}$<br>
+$\color{#26C519FF}{\textsf{likely at docks}}$ $\color{#A6D113FF}{\textsf{with friends tho :P}}$<br>
+$\color{#A6D113FF}{\textsf{interact...}}$ $\color{#26C519FF}{\textsf{now...}}$ $\color{#A6D113FF}{\textsf{i love socialising}}$<br>
 
 <br>
 
