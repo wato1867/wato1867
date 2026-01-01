@@ -27,7 +27,7 @@
 <br>  
 
 $\color{#A6D113FF}{\textsf{skurfic, he/him! check prns cc}}$ <br>
-$\color{#A6D113FF}{\textsf{daybreak duo & kww trio lover!!}}$<br>
+$\color{#A6D113FF}{\textsf{daybreak duo n' kww trio lover!!}}$<br>
 $\color{#A6D113FF}{\textsf{spamtenna enjoyer.. kill the divorcees}}$<br>
 $\color{#A6D113FF}{\textsf{(find me in the docks or utdr area}}$<br>
 $\color{#A6D113FF}{\textsf{likely at docks with friends tho :P}}$<br>
