@@ -40,7 +40,7 @@ $\color{#A6D113FF}{\textsf{interact... now... i love socialising}}$<br>
 <a href="https://youtu.be/5XEMCM8n1XQ?si=N0yf0GLCpQxf7JUA"><img src="https://64.media.tumblr.com/fd7be7fdfa56e5ad21be4c07889e916a/bffd9988782c76d9-46/s1280x1920/1d93222ac25f80b5cd8596e48cb0c7c27a818bdf.pnj" alt="img star div" width="700"></a>
 <br><br>
 
-[rentry](https://rentry.co/thatguyzan) [revospring](https://revospring.net/@skurfic) [spotify](https://open.spotify.com/user/79c6szq0yu2el7cqgx9lacc7l) [twitter](https://x.com/skurfic)
+[rentry](https://rentry.co/thatguyzan)ㅤㅤ[revospring](https://revospring.net/@skurfic)ㅤㅤ[spotify](https://open.spotify.com/user/79c6szq0yu2el7cqgx9lacc7l)ㅤㅤ[twitter](https://x.com/skurfic)
 
 
 <a href="https://youtu.be/5XEMCM8n1XQ?si=N0yf0GLCpQxf7JUA"><img src="https://64.media.tumblr.com/ec54b24c8f3ed182887dfddb837e1724/4cfb6372a693d52e-47/s1280x1920/f26364227cfe9c95f45ab52f8a21cb9b1ba2985b.pnj" alt="wato chibi" width="50" title="ac: starfaiinight"></a>
